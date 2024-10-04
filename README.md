@@ -17,6 +17,8 @@ I'm a passionate Brand Content Creator & Social Media Strategist at @L3ns, where
 👩🏻‍🏫 My background as an educator and pedagogist has fueled my creativity and my commitment to designing inclusive digital experiences.
 
 
+
+
 🌟 Featured Projects:
 
 Red Valley Festival - Digital Marketing Campaign:
@@ -40,6 +42,8 @@ Tech Stack: Canva, Adobe Creative Suite, Instagram, Facebook Ads
 Features: Educational content creation, video marketing, patient testimonials, and a targeted social media strategy to highlight services, resulting in a notable growth in both brand awareness and online consultations.
 
 
+
+
 🌱 What I'm Exploring
 I'm continually expanding my expertise in:
 
@@ -47,6 +51,8 @@ AI-driven content creation
 Inclusive digital experiences
 Advanced content marketing strategies
 Web development tools and platforms
+
+
 
 
 📫 How to Reach Me
